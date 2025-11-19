@@ -27,9 +27,9 @@
 ⠀ ⠀ ⠀ ⠀ ⠀..𝖨 𝖻𝖾𝗀 𝗒𝗈𝗎, 𝗁𝖺𝗏𝖾 𝗆𝖾𝗋𝖼𝗒 𝖺𝗇𝖽 𝗄𝗂𝗅𝗅 𝗆𝖾..
 َ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀✦ 𝑩𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆s =
-⠀ ⠀ ⠀ ⠀ ⠀|  No: dont int if ur under 15 yr old. No Hate speech about religions, no homophobic, no transphobics okay? also dont be weird.
+⠀ ⠀ ⠀ ⠀ ⠀|  No: dont int if ur under 13 yr old. No Hate speech about religions, no homophobic, no transphobics okay? also dont be weird.
 ⠀ ⠀ ⠀ ⠀ ⠀ |  Ask: Im comf when ppl ask my age, so idm! sk me abt my discord tho!
-⠀ ⠀ ⠀ ⠀ ⠀ |  Yes:Comf with Flirting for joke or not, im mainly extrovert so idm any ideas to come, idm int w ppl 16 to 24 yr old. 
+⠀ ⠀ ⠀ ⠀ ⠀ |  Yes:Comf with Flirting for joke or not, im mainly extrovert so idm any ideas to come, idm int w ppl 18 to 24 yr old. 
 ⠀ ⠀ ⠀ ⠀ ⠀╰ ➤ - " 𝗉𝗈𝗅𝖾𝗌.. 𝗉𝖺𝗌𝗌𝗂𝗈𝗇𝖺𝗍𝖾 𝖻𝗎𝗍 𝖼𝗁𝖺𝗈𝗍𝗂𝖼. 𝖶𝗂𝗍𝗁 𝗍𝗁𝖾 𝗌𝗈𝗎𝗅 𝗈𝖿 𝖺 𝗐𝖺𝗋𝗋𝗂𝗈𝗋, 𝖻𝗎𝗍 𝗐𝗂𝗍𝗁𝗈𝗎𝗍 𝗍𝗁𝖾 𝖺𝗋𝗍 𝗈𝖿 𝗉𝖾𝖺𝖼𝖾." - 𝖭𝗂𝖾𝗍𝗓𝗌𝖼𝗁𝖾
 ⠀ ⠀ ⠀ ⠀ ⠀َ
 ⠀ ⠀ ⠀ ⠀ ⠀..𝖯𝖾𝗈𝗉𝗅𝖾 𝗁𝖺𝗏𝖾 𝗇𝗈 𝗋𝗂𝗀𝗁𝗍, 𝗉𝖾𝗈𝗉𝗅𝖾 𝖼𝖺𝗇𝗇𝗈𝗍 𝗄𝗂𝗅𝗅 𝗆𝖾!.."
