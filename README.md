@@ -37,7 +37,9 @@
 ⠀ ⠀ ⠀ ⠀ ⠀Straw soon.
 َ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀━ ✦ “you know i would die for you, right?” ✦ ━━
-<img width="720" height="196" alt="1000045901" src="https://github.com/user-attachments/assets/6ab439d7-5cb2-4864-b16c-a7f74d70c184" />
+
+<img width="735" height="434" alt="image" src="https://github.com/user-attachments/assets/5af44687-50c6-481a-91ce-fda217b6070c" />
+
 
 <!--
 **c00lGUI7n7/c00lGUI7n7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
