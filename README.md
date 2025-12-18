@@ -1,4 +1,5 @@
-## Hii!! 
+<img width="736" height="486" alt="image" src="https://github.com/user-attachments/assets/aa8710c9-3ee7-4a4f-98d0-f3d47e1c7216" />
+
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀Heres info abt me, more will appear on my strawpage.
@@ -37,8 +38,6 @@
 ⠀ ⠀ ⠀ ⠀ ⠀Straw soon.
 َ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀━ ✦ “you know i would die for you, right?” ✦ ━━
-
-<img width="735" height="434" alt="image" src="https://github.com/user-attachments/assets/5af44687-50c6-481a-91ce-fda217b6070c" />
 
 
 <!--
