@@ -1,11 +1,5 @@
 
-<img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/ed98347d-6b0b-4fed-ba1c-5f02133c6c20" />
-
-
-
-
-
-⠀ ⠀ ⠀ ⠀ ⠀Heres info abt me, more will appear on my strawpage.
+⠀  ⠀ ⠀ ⠀Heres info abt me, more will appear on my strawpage.
  ⠀ ⠀
 ⠀
 ⠀ ⠀ ⠀ ⠀﹌﹌﹌﹌﹌﹌꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂﹌﹌﹌﹌﹌﹌
